@@ -1,1 +1,1 @@
-# M_dawrf
+# M dwarf
